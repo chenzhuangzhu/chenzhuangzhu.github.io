@@ -1,2 +1,2 @@
 # chenzhuangzhu.github.io
-个人主页
+czz的个人主页
